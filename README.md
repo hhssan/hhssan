@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hhssan
-- 👀 I’m interested in photonic , circuits integred ,optique
+- 👀 I’m interested by colloîdes , magnetics particules ,optique, self assembled
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
